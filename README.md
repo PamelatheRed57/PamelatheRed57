@@ -25,6 +25,8 @@ You can click the Preview link to take a look at your changes.
 
 Thank you for your time and anything you can do to help me I appreciate and will be more than 
 Happy to pay you for your time. Only if the situation is resolved. 
-
+Oh and one BIG DETAIL-the HACKER (s) already changed my GitHub 
+PASSWORD!!!!! unreal! This is what they do constantly and I created a very complex password so 
+How the heck are they getting the password so fast!???? 
 Pamela 
 --->
